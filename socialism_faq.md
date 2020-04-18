@@ -120,7 +120,7 @@
 * [What is Stalinism?](http://www.reddit.com/r/communism101/comments/15g4xo/what_is_stalinism/)
 * [Looking for reference to types of communism.](http://www.reddit.com/r/communism101/comments/1fcc6o/looking_for_reference_to_types_of_communism/)
 * [What was Engels Contribution to Marxism?](https://necessityandfreedom.wordpress.com/2017/04/16/without-engels-there-would-be-no-marxism/)
-* [Were the nazis socialist? What about national socialism, the national socialist movement (NSM), and the national front?](https://www.snopes.com/news/2017/09/05/were-nazis-socialists/), [2](https://www.reddit.com/r/Socialism_101/comments/79kvin/what_is_the_difference_between_socialists_here/), [3](https://www.reddit.com/r/therewasanattempt/comments/cblf1y/to_commit_a_hate_crime/ethf3t8/), [4](https://www.reddit.com/r/ShitLiberalsSay/wiki/index#wiki_the_nazis_were_socialists.2C_communists_or_leftists)
+* [Were the nazis socialist? What about national socialism, the national socialist movement (NSM), and the national front?](https://www.snopes.com/news/2017/09/05/were-nazis-socialists/), [2](https://www.reddit.com/r/Socialism_101/comments/79kvin/what_is_the_difference_between_socialists_here/), [3](https://www.reddit.com/r/therewasanattempt/comments/cblf1y/to_commit_a_hate_crime/ethf3t8/), [4](https://Leftypedia.org/wiki/user:Anarcho-Bolshevik/compendium/section_2)
 * [What is Fascism?](http://www.nybooks.com/articles/1995/06/22/ur-fascism/)
 * [Did Karl Marx use "socialism" and "communism" interchangeably?](http://www.reddit.com/r/communism101/comments/2msa39/did_karl_marx_use_socialism_and_communism/)
 * [What is Luxemburgism?](https://www.reddit.com/r/communism/comments/bzl9iu/luxemburgism/eqtbcxe/)
